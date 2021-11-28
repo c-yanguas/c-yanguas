@@ -1,5 +1,5 @@
-👨‍💻-Soy Carlos Yanguas, ingeniero informático y apasionado por el mundo de la inteligencia artifical.
+👨‍💻-I am Carlos Yanguas, computer engineer and passionate about the world of artificial intelligence.
 
-🧠-Actualmente cursando el máster de inteligencia artificial ofrecido en la UPM.
+🧠-Currently studying the master's degree in artificial intelligence offered at the UPM.
 
-♟-También me encanta el ajedrez, puedes añadirme en lichess: carlos_yanguas.
+♟-I also love chess, you can add me on lichess: carlos_yanguas.
