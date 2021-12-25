@@ -2,4 +2,4 @@
 
 🧠-Currently studying the master's degree in artificial intelligence offered at the UPM.
 
-♟-I also love chess, you can add me on lichess: [lichess](https://lichess.org/@/carlos_yanguas).
+♟-I also love chess, you can add me on [lichess](https://lichess.org/@/carlos_yanguas).
